@@ -13,3 +13,6 @@
 
 > 4. Воспитываю двух аляскинских маламутов.
 
+
+![-91MWGrrr9HqhaY9DXBk013U0GugYVNzpHd8cKr3A4BcpMvMf0iXnUr6pCwNEpgMzQvCv5iymX969Cupt8lVg04_](https://github.com/user-attachments/assets/15b2cc0d-a370-4342-9cba-bebdb8df6a65)
+
